@@ -1,2 +1,0 @@
-# conintentar
-mi intento 
